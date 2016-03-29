@@ -132,6 +132,7 @@
 1. Castilho Marques Neto, editor e prof
 1. Ceci Vieira Juruâ , economista
 1. Cecilia Azevedo Lima Collares, professora faculdade de educação
+1. Cecília do Lago, jornalista
 1. Cecilia Rangel atriz e dramaturga
 1. Cejana Di Gumarães, jornalista
 1. Célio Turino, historiador

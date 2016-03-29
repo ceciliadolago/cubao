@@ -359,6 +359,7 @@
 1. João Luiz Vieira, professor de cinema
 1. João Miguel Valencise, cineasta, músico
 1. João Negrão, jornalista e líder comunitário
+1. João Paulo Mehl, hakerativista 
 1. João Paulo Procópio, cineasta
 1. João Paulo Soares, jornalista
 1. João Sicsú, economista e professor universitário
